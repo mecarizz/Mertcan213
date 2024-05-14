@@ -1,4 +1,4 @@
-half retard half programmer
+empty
 
 <!---
 Mertcan213/Mertcan213 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
